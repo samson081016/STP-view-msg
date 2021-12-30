@@ -1,3 +1,1 @@
-Big Thanks to all subscribers, by sam
-😁😁😁😁😁😁😀😀😀😀
-😊
+Big Thanks to all subscribers
